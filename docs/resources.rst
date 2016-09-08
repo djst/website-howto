@@ -2,7 +2,7 @@
 External Resources
 ==================
 
-Below are links to external resources.
+Below are links to external resources...
 
 ----
 
